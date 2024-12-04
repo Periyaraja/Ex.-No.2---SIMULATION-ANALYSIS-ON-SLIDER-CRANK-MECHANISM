@@ -45,6 +45,8 @@
 
 ## Output
 ![image](https://github.com/user-attachments/assets/fb869272-ea7b-463c-b669-7d3409b2ae13)
+![image](https://github.com/user-attachments/assets/72c1cb33-1f0d-40fc-b83b-54b44737a920)
+
 
 
 ### Name:Periya Raja
